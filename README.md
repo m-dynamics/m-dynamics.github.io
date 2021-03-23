@@ -1,1 +1,0 @@
-# m-dynamics.github.io
